@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NepNepTea
+- 👀 I’m interested in games
+- 🌱 I’m currently learning GO language
+- 😄 Pronouns: he/him
+- 🧑‍💻 Studying web development
