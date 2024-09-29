@@ -2,3 +2,4 @@
 - 👀 I’m interested in games
 - 😄 Pronouns: he/him
 - 🧑‍💻 Studying web development
+- 🤤 Weakness: cute boys
